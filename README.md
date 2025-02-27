@@ -1,4 +1,4 @@
-### Seja bem vindo(a) ao meu perfil no GitHub! 👨🏽‍💻
+### Hello, Stranger! 👋🏽
 
 #### Minhas skills 
 
